@@ -30,7 +30,7 @@
       <br>
    <b>Daal-Fry Making</b>
       <br>
-            <b>Cook Dal</b> 
+            <b>Cook Dal:-</b> 
                <br>
                1. Rinse your lentils in water for 3 to 4 times. I would recommend using ½ cup tuvar dal (arhar dal or pigeon pea lentils) or ¼ cup each of tuvar dal and masoor dal (pink or orange lentils).
                2. After rinsing, pour the lentils into a 2-liter pressure cooker and toss in a pinch of turmeric powder and 1.5 cups of water.
